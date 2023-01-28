@@ -11,3 +11,5 @@
 3. Изображения
     * **_Развлекательные_**
     ![Аркейн](dR-iWv4W0eg.jpg)
+
+Haven't watched the "Arcane" yet :(
